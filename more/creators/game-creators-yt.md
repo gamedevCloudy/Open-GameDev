@@ -6,9 +6,9 @@
 + [RawQue](https://www.youtube.com/channel/UCXoj82X2Zqy9jWmKn36fYwA)
 
 ### Fren - they fren w/me
-+ [DemonKingSwarn](https://www.youtube.com/channel/UCC1yT9JzYwz6dDwLM-KWt0A) - cuz why not?
-+ [The Deangel X](https://www.youtube.com/channel/UCmTK53CuUCRMMRHgNQ4a6jg) BRO :)
-+ [Kushal Baid](https://www.youtube.com/channel/UCVsxoJLuSuV7T8jTyOPYQQg) - cute kid imo
++ [DemonKingSwarn](https://www.youtube.com/channel/UCC1yT9JzYwz6dDwLM-KWt0A) - Hackerman
++ [The Deangel X](https://www.youtube.com/channel/UCmTK53CuUCRMMRHgNQ4a6jg) - Bro
++ [Kushal Baid](https://www.youtube.com/channel/UCVsxoJLuSuV7T8jTyOPYQQg) 
 + [The Awesome Shaz](https://www.youtube.com/channel/UCL79-l6VZoiD0Mudq0INuWA)
 
 <br>
